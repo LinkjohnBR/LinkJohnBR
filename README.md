@@ -46,4 +46,4 @@ Focado em transformar processos manuais em sistemas autônomos, escaláveis e re
 ## 📩 Vamos conversar?
 Não entrego apenas código — entrego sistemas estruturados e preparados para o crescimento. Se você busca automação de alto nível, vamos trocar uma ideia!
 
-📫 **Contato:** [seu-email@exemplo.com]
+📫 **Contato:** [jhtb1992@gmail.com]
