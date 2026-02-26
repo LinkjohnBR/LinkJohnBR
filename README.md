@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou o Johnata Nascimento (LinkJohn)
+# 👋 Olá, eu sou o LinkJohn
 
 **Arquiteto de Sistemas e Especialista em Automação** 🚀
 
